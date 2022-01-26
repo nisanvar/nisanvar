@@ -4,9 +4,8 @@
 
 - facebook:[Nicolas Sanchez Vargas](https://www.facebook.com/nicolas.sanches.9066/)
 
+![WhatsApp Video 2022-01-26 at 3 31 03 PM](https://user-images.githubusercontent.com/98360959/151242382-687ead22-1217-4269-9c8f-6ec1f31a0aec.gif)
 
-
-![14368973523760](https://user-images.githubusercontent.com/98360959/151238446-494fe807-699c-421d-8c55-239e8d635c7b.jpg)
 
 
 
